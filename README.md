@@ -2,5 +2,5 @@
 -just another respitory
 
 
-+just another excited streamer dont fotget to follo fot everyday streams!!
++just another excited streamer dont forget to follow for everyday streams!!
 
